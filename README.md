@@ -8,3 +8,4 @@
 8.1" Proto Sample (16 grays)
 
 ![20221101_105311.gif](https://user-images.githubusercontent.com/40909985/199141875-0e013368-6500-497b-9d42-9139f12055af.gif)
+![제목 없는 동영상 - Clipchamp로 제작](https://user-images.githubusercontent.com/40909985/199143835-8d5168cf-49a7-424a-8a3d-2f24e29f3aa5.gif)
